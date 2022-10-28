@@ -1,2 +1,2 @@
 # JonFromMech.github.io
-web sedign
+web design
